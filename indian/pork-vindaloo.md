@@ -28,7 +28,7 @@ from Cooks Illustrated--creative subsitution for proper kashmiri chili peppers. 
 
 ## Steps
 
-1. Combine guajillos with 0.5cup water in a bowl until steaming, about 1.5mins.  Let steep for 10mins
+1. Combine guajillos with 0.5cup water in a bowl and microwave until steaming, about 1.5mins.  Let steep for 10mins
 2. While chile peppers are steeping, preheat oven to 325deg.
 3. Process guajillo and other Vindaloo Paste ingredients into a smooth paste, then add remaining 0.5cup water and continue to process +1min
 4. Add pork to large bowl and pour vindaloo paste over it, mixing thoroughly
