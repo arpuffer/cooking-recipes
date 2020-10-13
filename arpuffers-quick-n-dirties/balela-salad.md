@@ -1,4 +1,5 @@
 # BALELA SALAD
+#### A chickpea + black bean salad with tomatoes and herbs
 #### PREP TIME: 10 minutes
 ## INGREDIENTS
 * 1 15-ounce cans chickpeas, drained and rinsed
