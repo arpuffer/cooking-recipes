@@ -1,10 +1,10 @@
 # Apple Almond Turnovers (yield: 8 turnovers)
 
 ## Rough Puff Pastry:
-2 1/4 c (315g) AP flour
-1 tsp salt
-2/3 c (151g) water, cold
-8 oz (227g) butter, cold and cubed
+- 2 1/4 c (315g) AP flour
+- 1 tsp salt
+- 2/3 c (151g) water, cold
+- 8 oz (227g) butter, cold and cubed
 
 1. Add flour and salt to a bowl. Add the cubes of butter and mix until each cube is covered in flour.
 2. Pour in the water and mix until a dough forms. Wrap and refrigerate for 30 min. 
