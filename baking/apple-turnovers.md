@@ -12,26 +12,26 @@
 4. Repeat rolling and folding two more times. Refrigerate for 30 more minutes before using.
 
 ## Apple Filling
-2 granny smith apples
-2 honeycrisp apples
-2 oz (57g) butter
-1/3 c (71g) brown sugar
-1 tsp cinnamon
-1/2 tsp nutmeg
-1/3 c (76g) water
-2 Tbsp (14g) cornstarch
+- 2 granny smith apples
+- 2 honeycrisp apples
+- 2 oz (57g) butter
+- 1/3 c (71g) brown sugar
+- 1 tsp cinnamon
+- 1/2 tsp nutmeg
+- 1/3 c (76g) water
+- 2 Tbsp (14g) cornstarch
 
 1. Peel and cut apples into small cubes. Add to a pot with the melted butter and cook for 2 minutes.
 2. Add the brown sugar and spices and cook for another minute or two.
 3. Whisk together water and cornstarch and add to the apples. Cook until thickened.
 
 ## Almond Filling
-4 oz (113g) butter
-1 c (113g) powdered sugar
-1 egg
-1/2 tsp almond extract
-1.25 c (120g) almond flour
-1/4 c (35g) AP flour
+- 4 oz (113g) butter
+- 1 c (113g) powdered sugar
+- 1 egg
+- 1/2 tsp almond extract
+- 1.25 c (120g) almond flour
+- 1/4 c (35g) AP flour
 
 1. Mix butter and powdered sugar together. Add the egg and almond extract and mix.
 2. Mix in the almond flour and flour until smooth.
